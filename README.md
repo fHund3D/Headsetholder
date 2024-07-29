@@ -18,3 +18,5 @@ Key Features:
 • Space-Saving Design: Keeps your headset organized and accessible, freeing up desk space.
  
 Ideal for both personal and professional use, this headset holder combines functionality with a sleek design, making it an excellent addition to any setup.
+
+Check me out on Marker World @Schwarzt0ast
